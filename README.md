@@ -6,6 +6,7 @@ I am fervent solving problems that arise as a result of lack of adequate data pr
 I am open to collaboration and always ready to learn!
 
 # Check me out here 👇
+
 > Twitter: https://twitter.com/Iamlatifu1
 > Linkedln: linkedin.com/in/lateef-dami…
 > Medium: https://medium.com/@iamlatifu
