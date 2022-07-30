@@ -9,6 +9,6 @@ I am open to collaboration and always ready to learn!
 
   > Twitter: https://twitter.com/Iamlatifu1
 
-  > Linkedln: linkedin.com/in/lateef-dami…
+  > Linkedln: https://www.linkedin.com/in/lateef-damilola-salawu-b513b91b2
  
   > Medium: https://medium.com/@iamlatifu
