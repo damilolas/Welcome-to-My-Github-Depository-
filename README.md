@@ -7,6 +7,8 @@ I am open to collaboration and always ready to learn!
 
 # Check me out here 👇
 
-> Twitter: https://twitter.com/Iamlatifu1
-> Linkedln: linkedin.com/in/lateef-dami…
-> Medium: https://medium.com/@iamlatifu
+  > Twitter: https://twitter.com/Iamlatifu1
+
+  > Linkedln: linkedin.com/in/lateef-dami…
+ 
+  > Medium: https://medium.com/@iamlatifu
